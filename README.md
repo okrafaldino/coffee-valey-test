@@ -1,5 +1,7 @@
 Jawaban Practical test
 
+Untuk pdf : screenshoot.pdf
+
 Nama: Okrafaldino
 
 Email: okrafaldino12@gmail.com
